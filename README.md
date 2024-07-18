@@ -1,2 +1,2 @@
 # TIME-DOWN
-life is fucking moveing
+life is fucking moving
